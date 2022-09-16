@@ -1,1 +1,1 @@
-# kecerdasan Komputasional F
+# Kecerdasan Komputasional F
